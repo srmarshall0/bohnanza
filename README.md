@@ -1,0 +1,2 @@
+# bohnanza
+for bean enthusiasts
